@@ -1,5 +1,5 @@
 # Binance Leaked Big Database
-Binance user database leaked in August 2024 - Download
+13 Million Binance user database leaked in August 2024 - Download
 
 Post: https://t.me/leakedbigdata/4434
 
